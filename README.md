@@ -8,6 +8,7 @@ I share with you below some gameplay moments.
 <br/>
 You can also discover a gameplay video by clicking on this link : https://youtu.be/bM2y3HmegBU
 <br/>
+
 Or visit the Itch.io game page : https://kayrosgames.itch.io/battle-game
 <br/>
 
